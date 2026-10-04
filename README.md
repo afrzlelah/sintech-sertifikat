@@ -1,0 +1,1 @@
+# sintech-sertifikat
